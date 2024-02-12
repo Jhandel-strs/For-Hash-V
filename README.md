@@ -2,5 +2,5 @@
 
 ## View mo po here
 
-To experience "Will You Be My Valentine?", simply visit [https://jhandel-strs.github.io/For-Hash-V/]
+Click mo po tong linkk or if di just copy. Ty hhh[https://jhandel-strs.github.io/For-Hash-V/]
 
